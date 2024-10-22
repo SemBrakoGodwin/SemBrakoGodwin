@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @SemBrakoGodwin
+- 👀 I’m interested in Data and Business Analytics
